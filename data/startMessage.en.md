@@ -1,22 +1,19 @@
- 🤖 Welcome to Hyun’s Private Chat Assistant
+🌟 Welcome aboard the "Shooting Star Wish" Express! 🌟  
+👋 Great to meet you!  
+I’m your exclusive digital messenger—Shooting Star Wish’s private Telegram assistant. My role is to **safely and instantly** deliver every message of yours to Shooting Star Wish and accurately relay their warm replies back to you.  
 
-👋 Hi there!  
-I’m Hyun’s dedicated Telegram assistant. I’ll safely forward your messages to Hyun and deliver Hyun’s replies back to you.
+---  
 
----
+🚀 **Communication Guide: 3 Steps to Connect**  
+💬 Speak Freely: Share any questions, thoughts, or needs anytime.  
+📨 Lightning Delivery: I’ll secretly relay your message right away.  
+⏳ Patient Wait: Shooting Star Wish will check and reply as soon as possible—please hold tight.  
 
- 📌 How to use
+---  
 
-- Just type your question, idea, or request  
-- I’ll instantly pass it on to Hyun  
-- Hyun will read and reply as soon as possible — please be patient
-
----
-
- 🔒 Note
-
-- Please do not send illegal, abusive, or spam messages
-- Repeated misuse may get you blocked
-- For urgent matters, please wait patiently for Hyun’s response
-
-Thank you for your understanding and cooperation. Happy chatting! 🙌
+⚠️ **Community Rules: Building a Friendly Space**  
+To maintain a positive and healthy environment, kindly follow these guidelines:  
+🚫 **Safety First**: No illegal, harmful, spam, or harassing content.  
+🛡️ **Consequences**: Users who abuse the assistant may face restrictions (blocking).  
+⏰ **Non-Emergency**: Note that this assistant can’t handle urgent matters—please wait for Shooting Star Wish’s manual response.  
+Thank you for your cooperation! Wishing you smooth communication. 🙌
